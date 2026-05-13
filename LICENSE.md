@@ -1,4 +1,4 @@
-# 
+# new Adobe Illustrator for macOS Brush Pack | non-destructive editing + layer styles offers the most advanced Adobe Illustrator for macOS brush, with non-destructive editing and
 
 
 
